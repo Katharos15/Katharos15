@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Katharos15
-- 👀 I’m interested in languages and Star Wars
+- 👀 I’m interested in languages and games
 - 🌱 I’m currently learning how to code for the first time
 - 💞️ I’m looking to collaborate on something, I guess?
 - 📫 How to reach me via pigeon mail
